@@ -1,5 +1,5 @@
 # need-help-del-old-user-on-phone?!?!?
-Really starting to piss me!!!! off Ive been
+Really starting to piss me off!!!! Ive been
 Watching videos on YouTube to try and help 
 To all my knowledge which is very little in 
 Coding ive 
